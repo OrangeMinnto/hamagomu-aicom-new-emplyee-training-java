@@ -1,0 +1,1 @@
+# hamagomu-aicom-new-emplyee-training-java
